@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-10-02
+## 📅 Word of the Day - 2025-10-03
 
-### **violation**
-- **Meaning**: The act or an instance of violating or the condition of being violated.
+### **copilot**
+- **Meaning**: A backup or assistant pilot of an aircraft.
 
 ---
