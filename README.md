@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-10-03
+## 📅 Word of the Day - 2025-10-04
 
-### **copilot**
-- **Meaning**: A backup or assistant pilot of an aircraft.
+### **lushly**
+- **Meaning**: Definition not found.
 
 ---
