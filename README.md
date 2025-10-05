@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-10-04
+## 📅 Word of the Day - 2025-10-05
 
-### **lushly**
-- **Meaning**: Definition not found.
+### **late**
+- **Meaning**: A shift (scheduled work period) that takes place late in the day or at night.
 
 ---
