@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-10-06
+## 📅 Word of the Day - 2025-10-07
 
-### **countable**
-- **Meaning**: Capable of being counted; having a quantity.
+### **nuzzle**
+- **Meaning**: (of animals, lovers, etc) To touch someone or something with the nose.
 
 ---
