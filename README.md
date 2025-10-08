@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-10-07
+## 📅 Word of the Day - 2025-10-08
 
-### **nuzzle**
-- **Meaning**: (of animals, lovers, etc) To touch someone or something with the nose.
+### **lukewarm**
+- **Meaning**: (temperature) Between warm and cool.
 
 ---
