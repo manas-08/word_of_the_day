@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-10-08
+## 📅 Word of the Day - 2025-10-09
 
-### **lukewarm**
-- **Meaning**: (temperature) Between warm and cool.
+### **undertake**
+- **Meaning**: To take upon oneself; to start, to embark on (a specific task etc.).
 
 ---
