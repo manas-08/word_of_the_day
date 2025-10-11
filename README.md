@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-10-10
+## 📅 Word of the Day - 2025-10-11
 
-### **everybody**
-- **Meaning**: All people.
+### **consent**
+- **Meaning**: Voluntary agreement or permission.
 
 ---
