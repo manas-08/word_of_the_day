@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-10-11
+## 📅 Word of the Day - 2025-10-12
 
-### **consent**
-- **Meaning**: Voluntary agreement or permission.
+### **parish**
+- **Meaning**: In the Anglican, Eastern Orthodox, Lutheran and Roman Catholic Church, an administrative part of a diocese that has its own church.
 
 ---
