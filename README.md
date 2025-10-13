@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-10-12
+## 📅 Word of the Day - 2025-10-13
 
-### **parish**
-- **Meaning**: In the Anglican, Eastern Orthodox, Lutheran and Roman Catholic Church, an administrative part of a diocese that has its own church.
+### **strained**
+- **Meaning**: To hold tightly, to clasp.
 
 ---
