@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-10-13
+## 📅 Word of the Day - 2025-10-14
 
-### **strained**
-- **Meaning**: To hold tightly, to clasp.
+### **diffuser**
+- **Meaning**: Any person or thing that diffuses.
 
 ---
