@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-10-15
+## 📅 Word of the Day - 2025-10-16
 
-### **shopping**
-- **Meaning**: To visit stores or shops to browse or explore merchandise, especially with the intention of buying such merchandise.
+### **proved**
+- **Meaning**: To proofread.
 
 ---
