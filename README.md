@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-10-16
+## 📅 Word of the Day - 2025-10-17
 
-### **proved**
-- **Meaning**: To proofread.
+### **nucleus**
+- **Meaning**: The core, central part of something, around which other elements are assembled.
 
 ---
