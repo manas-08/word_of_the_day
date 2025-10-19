@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-10-18
+## 📅 Word of the Day - 2025-10-19
 
-### **pedicure**
-- **Meaning**: Superficial cosmetic treatment of the feet and toenails.
+### **antiviral**
+- **Meaning**: Definition not found.
 
 ---
