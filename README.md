@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-10-19
+## 📅 Word of the Day - 2025-10-20
 
-### **antiviral**
+### **walmart**
 - **Meaning**: Definition not found.
 
 ---
