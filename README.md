@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-10-21
+## 📅 Word of the Day - 2025-10-22
 
-### **perfected**
-- **Meaning**: Definition not found.
+### **everyday**
+- **Meaning**: (rare) the ordinary or routine day or occasion
 
 ---
