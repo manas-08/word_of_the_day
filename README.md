@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-10-22
+## 📅 Word of the Day - 2025-10-23
 
-### **everyday**
-- **Meaning**: (rare) the ordinary or routine day or occasion
+### **drainpipe**
+- **Meaning**: A pipe that carries fluid which is being drained.
 
 ---
