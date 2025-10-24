@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-10-23
+## 📅 Word of the Day - 2025-10-24
 
-### **drainpipe**
-- **Meaning**: A pipe that carries fluid which is being drained.
+### **evacuate**
+- **Meaning**: To leave or withdraw from; to quit; to retire from
 
 ---
