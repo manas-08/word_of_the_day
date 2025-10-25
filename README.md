@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-10-24
+## 📅 Word of the Day - 2025-10-25
 
-### **evacuate**
-- **Meaning**: To leave or withdraw from; to quit; to retire from
+### **landlord**
+- **Meaning**: A person who owns and rents land such as a house, apartment, or condo.
 
 ---
