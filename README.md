@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-10-27
+## 📅 Word of the Day - 2025-10-28
 
-### **disprove**
-- **Meaning**: To prove to be false or erroneous; to confute; to refute.
+### **trident**
+- **Meaning**: A three-pronged spear somewhat resembling a pitchfork.
 
 ---
