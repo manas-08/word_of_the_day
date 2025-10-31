@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-10-30
+## 📅 Word of the Day - 2025-10-31
 
-### **petted**
-- **Meaning**: To stroke or fondle (an animal).
+### **machine**
+- **Meaning**: A device that directs and controls energy, often in the form of movement or electricity, to produce a certain effect.
 
 ---
