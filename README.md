@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-10-31
+## 📅 Word of the Day - 2025-11-01
 
-### **machine**
-- **Meaning**: A device that directs and controls energy, often in the form of movement or electricity, to produce a certain effect.
+### **fence**
+- **Meaning**: A thin artificial barrier that separates two pieces of land or a house perimeter.
 
 ---
