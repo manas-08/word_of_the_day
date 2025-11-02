@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-11-01
+## 📅 Word of the Day - 2025-11-02
 
-### **fence**
-- **Meaning**: A thin artificial barrier that separates two pieces of land or a house perimeter.
+### **tapestry**
+- **Meaning**: A heavy woven cloth, often with decorative pictorial designs, normally hung on walls.
 
 ---
