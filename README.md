@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-11-03
+## 📅 Word of the Day - 2025-11-04
 
-### **dried**
-- **Meaning**: Without water or moisture, said of something that has previously been wet or moist; resulting from the process of drying.
+### **trimming**
+- **Meaning**: To reduce slightly; to cut; especially, to remove excess.
 
 ---
