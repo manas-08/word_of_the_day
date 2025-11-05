@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-11-04
+## 📅 Word of the Day - 2025-11-05
 
-### **trimming**
-- **Meaning**: To reduce slightly; to cut; especially, to remove excess.
+### **jogger**
+- **Meaning**: A person who jogs (as exercise).
 
 ---
