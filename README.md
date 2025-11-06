@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-11-05
+## 📅 Word of the Day - 2025-11-06
 
-### **jogger**
-- **Meaning**: A person who jogs (as exercise).
+### **impale**
+- **Meaning**: To pierce (something) with any long, pointed object.
 
 ---
