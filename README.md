@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-11-06
+## 📅 Word of the Day - 2025-11-07
 
-### **impale**
-- **Meaning**: To pierce (something) with any long, pointed object.
+### **rabid**
+- **Meaning**: A human or animal infected with rabies.
 
 ---
