@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-11-07
+## 📅 Word of the Day - 2025-11-08
 
-### **rabid**
-- **Meaning**: A human or animal infected with rabies.
+### **bruising**
+- **Meaning**: To strike (a person), originally with something flat or heavy, but now specifically in such a way as to discolour the skin without breaking it.
 
 ---
