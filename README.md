@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-11-08
+## 📅 Word of the Day - 2025-11-09
 
-### **bruising**
-- **Meaning**: To strike (a person), originally with something flat or heavy, but now specifically in such a way as to discolour the skin without breaking it.
+### **tripod**
+- **Meaning**: A three-legged stand or mount.
 
 ---
