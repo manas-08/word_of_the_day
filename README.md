@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-11-09
+## 📅 Word of the Day - 2025-11-10
 
-### **tripod**
-- **Meaning**: A three-legged stand or mount.
+### **shimmer**
+- **Meaning**: A faint or veiled and tremulous gleam or shining.
 
 ---
