@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-11-11
+## 📅 Word of the Day - 2025-11-12
 
-### **impotent**
-- **Meaning**: A man who has erectile dysfunction
+### **dreadful**
+- **Meaning**: A shocker: a report of a crime written in a provokingly lurid style.
 
 ---
