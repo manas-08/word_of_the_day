@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-11-12
+## 📅 Word of the Day - 2025-11-13
 
-### **dreadful**
-- **Meaning**: A shocker: a report of a crime written in a provokingly lurid style.
+### **ashen**
+- **Meaning**: Made from the wood of the ash-tree.
 
 ---
