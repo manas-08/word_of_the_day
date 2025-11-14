@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-11-13
+## 📅 Word of the Day - 2025-11-14
 
-### **ashen**
-- **Meaning**: Made from the wood of the ash-tree.
+### **unclog**
+- **Meaning**: To remove a blockage from.
 
 ---
