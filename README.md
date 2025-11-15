@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-11-14
+## 📅 Word of the Day - 2025-11-15
 
-### **unclog**
-- **Meaning**: To remove a blockage from.
+### **salami**
+- **Meaning**: A large cured meat sausage of Italian origin, served in slices.
 
 ---
