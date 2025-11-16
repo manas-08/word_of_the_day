@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-11-15
+## 📅 Word of the Day - 2025-11-16
 
-### **salami**
-- **Meaning**: A large cured meat sausage of Italian origin, served in slices.
+### **goofball**
+- **Meaning**: (sometimes affectionate) A foolish or silly person or animal.
 
 ---
