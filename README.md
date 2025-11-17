@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-11-16
+## 📅 Word of the Day - 2025-11-17
 
-### **goofball**
-- **Meaning**: (sometimes affectionate) A foolish or silly person or animal.
+### **ligament**
+- **Meaning**: A band of strong tissue that connects bones to other bones.
 
 ---
