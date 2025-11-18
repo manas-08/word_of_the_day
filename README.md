@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-11-17
+## 📅 Word of the Day - 2025-11-18
 
-### **ligament**
-- **Meaning**: A band of strong tissue that connects bones to other bones.
+### **smell**
+- **Meaning**: A sensation, pleasant or unpleasant, detected by inhaling air (or, the case of water-breathing animals, water) carrying airborne molecules of a substance.
 
 ---
