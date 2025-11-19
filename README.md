@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-11-18
+## 📅 Word of the Day - 2025-11-19
 
-### **smell**
-- **Meaning**: A sensation, pleasant or unpleasant, detected by inhaling air (or, the case of water-breathing animals, water) carrying airborne molecules of a substance.
+### **captivate**
+- **Meaning**: To attract and hold interest and attention of; charm.
 
 ---
