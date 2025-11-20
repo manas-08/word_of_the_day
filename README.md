@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-11-19
+## 📅 Word of the Day - 2025-11-20
 
-### **captivate**
-- **Meaning**: To attract and hold interest and attention of; charm.
+### **goofball**
+- **Meaning**: (sometimes affectionate) A foolish or silly person or animal.
 
 ---
