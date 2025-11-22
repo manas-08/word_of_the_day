@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-11-21
+## 📅 Word of the Day - 2025-11-22
 
-### **musty**
-- **Meaning**: Having a stale odor.
+### **garnish**
+- **Meaning**: A set of dishes, often pewter, containing a dozen pieces of several types.
 
 ---
