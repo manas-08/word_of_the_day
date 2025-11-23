@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-11-22
+## 📅 Word of the Day - 2025-11-23
 
-### **garnish**
-- **Meaning**: A set of dishes, often pewter, containing a dozen pieces of several types.
+### **subtotal**
+- **Meaning**: The total for a part of a list of numbers being summed.
 
 ---
