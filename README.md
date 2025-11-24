@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-11-23
+## 📅 Word of the Day - 2025-11-24
 
-### **subtotal**
-- **Meaning**: The total for a part of a list of numbers being summed.
+### **dial**
+- **Meaning**: A graduated, circular scale over which a needle moves to show a measurement (such as speed).
 
 ---
