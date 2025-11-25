@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-11-24
+## 📅 Word of the Day - 2025-11-25
 
-### **dial**
-- **Meaning**: A graduated, circular scale over which a needle moves to show a measurement (such as speed).
+### **clamshell**
+- **Meaning**: The shell of a clam.
 
 ---
