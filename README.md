@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-11-25
+## 📅 Word of the Day - 2025-11-26
 
-### **clamshell**
-- **Meaning**: The shell of a clam.
+### **celestial**
+- **Meaning**: An inhabitant of heaven.
 
 ---
