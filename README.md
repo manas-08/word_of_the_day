@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-11-26
+## 📅 Word of the Day - 2025-11-27
 
-### **celestial**
-- **Meaning**: An inhabitant of heaven.
+### **spring**
+- **Meaning**: To weaken, as a joint, ligament, or muscle, by sudden and excessive exertion, as by wrenching; to overstrain, or stretch injuriously, but without luxation
 
 ---
