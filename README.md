@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-11-27
+## 📅 Word of the Day - 2025-11-28
 
-### **spring**
-- **Meaning**: To weaken, as a joint, ligament, or muscle, by sudden and excessive exertion, as by wrenching; to overstrain, or stretch injuriously, but without luxation
+### **hungry**
+- **Meaning**: Affected by hunger; desiring of food; having a physical need for food.
 
 ---
