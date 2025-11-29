@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-11-28
+## 📅 Word of the Day - 2025-11-29
 
-### **hungry**
-- **Meaning**: Affected by hunger; desiring of food; having a physical need for food.
+### **jellied**
+- **Meaning**: Converted into jelly; congealed
 
 ---
