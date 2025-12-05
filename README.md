@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-12-04
+## 📅 Word of the Day - 2025-12-05
 
-### **ditzy**
-- **Meaning**: Silly or scatterbrained, usually of a young woman.
+### **granddad**
+- **Meaning**: Grandfather
 
 ---
