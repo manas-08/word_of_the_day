@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-12-05
+## 📅 Word of the Day - 2025-12-06
 
-### **granddad**
-- **Meaning**: Grandfather
+### **mardi**
+- **Meaning**: Definition not found.
 
 ---
