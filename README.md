@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-12-07
+## 📅 Word of the Day - 2025-12-08
 
-### **ricotta**
-- **Meaning**: A soft Italian unsalted whey cheese resembling cottage cheese.
+### **wisdom**
+- **Meaning**: An element of personal character that enables one to distinguish the wise from the unwise.
 
 ---
