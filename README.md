@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-12-09
+## 📅 Word of the Day - 2025-12-10
 
-### **thee**
-- **Meaning**: To address (a person) using the pronoun thee.
+### **circus**
+- **Meaning**: A traveling company of performers that may include acrobats, clowns, trained animals, and other novelty acts, that gives shows usually in a circular tent.
 
 ---
