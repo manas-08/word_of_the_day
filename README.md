@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-12-12
+## 📅 Word of the Day - 2025-12-13
 
-### **vendetta**
-- **Meaning**: A bitter, destructive feud, normally between two families, clans or factions, in which each injury or slaying is revenged: a blood feud.
+### **snazzy**
+- **Meaning**: Elegant in manner of dress; stylish, modern or appealing in appearance; flashy.
 
 ---
