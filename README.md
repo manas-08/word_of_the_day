@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-12-13
+## 📅 Word of the Day - 2025-12-14
 
-### **snazzy**
-- **Meaning**: Elegant in manner of dress; stylish, modern or appealing in appearance; flashy.
+### **recovery**
+- **Meaning**: The act or process of regaining or repossession of something lost.
 
 ---
