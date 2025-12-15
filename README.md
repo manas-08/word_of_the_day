@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-12-14
+## 📅 Word of the Day - 2025-12-15
 
-### **recovery**
-- **Meaning**: The act or process of regaining or repossession of something lost.
+### **residency**
+- **Meaning**: The condition of being a resident of a particular place.
 
 ---
