@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-12-15
+## 📅 Word of the Day - 2025-12-16
 
-### **residency**
-- **Meaning**: The condition of being a resident of a particular place.
+### **rename**
+- **Meaning**: An instance of renaming.
 
 ---
