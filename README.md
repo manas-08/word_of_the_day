@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-12-18
+## 📅 Word of the Day - 2025-12-19
 
-### **resubmit**
-- **Meaning**: To submit again.
+### **reformer**
+- **Meaning**: One who reforms, or who works for reform.
 
 ---
