@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-12-19
+## 📅 Word of the Day - 2025-12-20
 
-### **reformer**
-- **Meaning**: One who reforms, or who works for reform.
+### **tribute**
+- **Meaning**: An acknowledgment of gratitude, respect or admiration; an accompanying gift.
 
 ---
