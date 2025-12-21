@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-12-20
+## 📅 Word of the Day - 2025-12-21
 
-### **tribute**
-- **Meaning**: An acknowledgment of gratitude, respect or admiration; an accompanying gift.
+### **outplayed**
+- **Meaning**: To excel or defeat in a game; to play better than.
 
 ---
