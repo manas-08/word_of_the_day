@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-12-21
+## 📅 Word of the Day - 2025-12-22
 
-### **outplayed**
-- **Meaning**: To excel or defeat in a game; to play better than.
+### **monastery**
+- **Meaning**: Building for housing monks or others who have taken religious vows
 
 ---
