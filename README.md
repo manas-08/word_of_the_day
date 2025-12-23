@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-12-22
+## 📅 Word of the Day - 2025-12-23
 
-### **monastery**
-- **Meaning**: Building for housing monks or others who have taken religious vows
+### **stingray**
+- **Meaning**: Any of various large, venomous rays, of the orders Rajiformes and Myliobatiformes, having a barbed, whiplike tail.
 
 ---
