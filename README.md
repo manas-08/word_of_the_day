@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-12-23
+## 📅 Word of the Day - 2025-12-24
 
-### **stingray**
-- **Meaning**: Any of various large, venomous rays, of the orders Rajiformes and Myliobatiformes, having a barbed, whiplike tail.
+### **stooge**
+- **Meaning**: One who knowingly allows himself or herself to be used for another's profit; a dupe.
 
 ---
