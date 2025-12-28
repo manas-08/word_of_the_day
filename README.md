@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-12-27
+## 📅 Word of the Day - 2025-12-28
 
-### **variety**
-- **Meaning**: The quality of being varied; diversity.
+### **crawlers**
+- **Meaning**: A person who is abused, physically or verbally, and returns to the abuser a supplicant.
 
 ---
