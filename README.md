@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-12-29
+## 📅 Word of the Day - 2025-12-30
 
-### **stinger**
-- **Meaning**: A pointed portion of an insect or arachnid used for attack.
+### **reversion**
+- **Meaning**: The action of reverting something.
 
 ---
