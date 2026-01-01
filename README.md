@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2025-12-31
+## 📅 Word of the Day - 2026-01-01
 
-### **endpoint**
-- **Meaning**: Either of the two points at the ends of a line segment.
+### **default**
+- **Meaning**: The condition of failing to meet an obligation.
 
 ---
