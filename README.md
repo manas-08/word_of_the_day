@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-01-01
+## 📅 Word of the Day - 2026-01-02
 
-### **default**
-- **Meaning**: The condition of failing to meet an obligation.
+### **embroider**
+- **Meaning**: To stitch a decorative design on fabric with needle and thread of various colours.
 
 ---
