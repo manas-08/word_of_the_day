@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-01-02
+## 📅 Word of the Day - 2026-01-03
 
-### **embroider**
-- **Meaning**: To stitch a decorative design on fabric with needle and thread of various colours.
+### **excusably**
+- **Meaning**: Definition not found.
 
 ---
