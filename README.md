@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-01-03
+## 📅 Word of the Day - 2026-01-04
 
-### **excusably**
-- **Meaning**: Definition not found.
+### **filing**
+- **Meaning**: To commit (official papers) to some office.
 
 ---
