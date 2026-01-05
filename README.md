@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-01-04
+## 📅 Word of the Day - 2026-01-05
 
-### **filing**
-- **Meaning**: To commit (official papers) to some office.
+### **rehire**
+- **Meaning**: A former employee who has been hired again.
 
 ---
