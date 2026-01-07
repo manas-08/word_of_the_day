@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-01-06
+## 📅 Word of the Day - 2026-01-07
 
-### **paver**
-- **Meaning**: A flat stone used to pave a pathway, such as a walkway to one's home.
+### **mule**
+- **Meaning**: The generally sterile male or female hybrid offspring of a male donkey and a female horse.
 
 ---
