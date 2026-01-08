@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-01-07
+## 📅 Word of the Day - 2026-01-08
 
-### **mule**
-- **Meaning**: The generally sterile male or female hybrid offspring of a male donkey and a female horse.
+### **slapstick**
+- **Meaning**: A style of humor focusing on physical comedy, such as slipping on a banana peel, and with foolish characters who get into humiliating situations.
 
 ---
