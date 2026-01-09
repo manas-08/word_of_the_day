@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-01-08
+## 📅 Word of the Day - 2026-01-09
 
-### **slapstick**
-- **Meaning**: A style of humor focusing on physical comedy, such as slipping on a banana peel, and with foolish characters who get into humiliating situations.
+### **cramp**
+- **Meaning**: A painful contraction of a muscle which cannot be controlled.
 
 ---
