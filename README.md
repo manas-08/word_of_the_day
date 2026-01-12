@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-01-11
+## 📅 Word of the Day - 2026-01-12
 
-### **support**
-- **Meaning**: (sometimes attributive) Something which supports.
+### **valiant**
+- **Meaning**: A person who acts with valor, showing hero-like characteristics in the midst of danger.
 
 ---
