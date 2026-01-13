@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-01-12
+## 📅 Word of the Day - 2026-01-13
 
-### **valiant**
-- **Meaning**: A person who acts with valor, showing hero-like characteristics in the midst of danger.
+### **deny**
+- **Meaning**: To disallow or reject.
 
 ---
