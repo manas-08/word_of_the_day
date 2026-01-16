@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-01-15
+## 📅 Word of the Day - 2026-01-16
 
-### **upbeat**
-- **Meaning**: An unaccented beat at the start of a musical phrase.
+### **dorsal**
+- **Meaning**: A hanging, usually of rich stuff, at the back of a throne, altar, etc.
 
 ---
