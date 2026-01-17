@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-01-16
+## 📅 Word of the Day - 2026-01-17
 
-### **dorsal**
-- **Meaning**: A hanging, usually of rich stuff, at the back of a throne, altar, etc.
+### **handshake**
+- **Meaning**: The grasping of hands by two people when greeting, leave-taking, or making an agreement.
 
 ---
