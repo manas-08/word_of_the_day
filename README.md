@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-01-17
+## 📅 Word of the Day - 2026-01-18
 
-### **handshake**
-- **Meaning**: The grasping of hands by two people when greeting, leave-taking, or making an agreement.
+### **rug**
+- **Meaning**: A partial covering for a floor.
 
 ---
