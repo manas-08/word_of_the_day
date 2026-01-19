@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-01-18
+## 📅 Word of the Day - 2026-01-19
 
-### **rug**
-- **Meaning**: A partial covering for a floor.
+### **anchor**
+- **Meaning**: A tool used to moor a vessel to the bottom of a sea or river to resist movement.
 
 ---
