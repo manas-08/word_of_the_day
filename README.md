@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-01-19
+## 📅 Word of the Day - 2026-01-20
 
-### **anchor**
-- **Meaning**: A tool used to moor a vessel to the bottom of a sea or river to resist movement.
+### **film**
+- **Meaning**: A thin layer of some substance; a pellicle; a membranous covering, causing opacity.
 
 ---
