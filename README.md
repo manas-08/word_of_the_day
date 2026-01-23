@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-01-22
+## 📅 Word of the Day - 2026-01-23
 
-### **outhouse**
-- **Meaning**: An outbuilding—typically permanent—containing a toilet or seat over a cesspit.
+### **boxcar**
+- **Meaning**: An enclosed railroad freight car, especially one with a sliding door.
 
 ---
