@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-01-24
+## 📅 Word of the Day - 2026-01-25
 
-### **sasquatch**
-- **Meaning**: A large hairy humanoid creature of western North America; a Bigfoot.
+### **impale**
+- **Meaning**: To pierce (something) with any long, pointed object.
 
 ---
