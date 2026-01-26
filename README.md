@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-01-25
+## 📅 Word of the Day - 2026-01-26
 
-### **impale**
-- **Meaning**: To pierce (something) with any long, pointed object.
+### **giving**
+- **Meaning**: (ditransitive) To move, shift, provide something abstract or concrete to someone or something or somewhere.
 
 ---
