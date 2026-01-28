@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-01-27
+## 📅 Word of the Day - 2026-01-28
 
-### **outage**
-- **Meaning**: A temporary suspension of operation, especially of electrical power supply.
+### **passcode**
+- **Meaning**: A string of characters used for authentication on a digital device.
 
 ---
