@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-01-28
+## 📅 Word of the Day - 2026-01-29
 
-### **passcode**
-- **Meaning**: A string of characters used for authentication on a digital device.
+### **deflator**
+- **Meaning**: Definition not found.
 
 ---
