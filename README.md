@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-01-29
+## 📅 Word of the Day - 2026-01-30
 
-### **deflator**
-- **Meaning**: Definition not found.
+### **pronto**
+- **Meaning**: Quickly, very soon, promptly.
 
 ---
