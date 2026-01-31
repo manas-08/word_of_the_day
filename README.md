@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-01-30
+## 📅 Word of the Day - 2026-01-31
 
-### **pronto**
-- **Meaning**: Quickly, very soon, promptly.
+### **capricorn**
+- **Meaning**: Definition not found.
 
 ---
