@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-01-31
+## 📅 Word of the Day - 2026-02-01
 
-### **capricorn**
-- **Meaning**: Definition not found.
+### **rocker**
+- **Meaning**: A curved piece of wood attached to the bottom of a rocking chair or cradle that enables it to rock back and forth.
 
 ---
