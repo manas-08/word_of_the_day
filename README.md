@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-02-01
+## 📅 Word of the Day - 2026-02-02
 
-### **rocker**
-- **Meaning**: A curved piece of wood attached to the bottom of a rocking chair or cradle that enables it to rock back and forth.
+### **laurel**
+- **Meaning**: Laurus nobilis, an evergreen shrub having aromatic leaves of a lanceolate shape, with clusters of small, yellowish white flowers in their axils.
 
 ---
