@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-02-02
+## 📅 Word of the Day - 2026-02-03
 
-### **laurel**
-- **Meaning**: Laurus nobilis, an evergreen shrub having aromatic leaves of a lanceolate shape, with clusters of small, yellowish white flowers in their axils.
+### **float**
+- **Meaning**: A buoyant device used to support something in water or another liquid.
 
 ---
