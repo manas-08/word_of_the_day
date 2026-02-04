@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-02-03
+## 📅 Word of the Day - 2026-02-04
 
-### **float**
-- **Meaning**: A buoyant device used to support something in water or another liquid.
+### **enjoying**
+- **Meaning**: To receive pleasure or satisfaction from something
 
 ---
