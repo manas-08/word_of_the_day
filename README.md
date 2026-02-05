@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-02-04
+## 📅 Word of the Day - 2026-02-05
 
-### **enjoying**
-- **Meaning**: To receive pleasure or satisfaction from something
+### **default**
+- **Meaning**: The condition of failing to meet an obligation.
 
 ---
