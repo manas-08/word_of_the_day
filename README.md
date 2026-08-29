@@ -1,6 +1,6 @@
-## 📅 Word of the Day - 2026-08-28
+## 📅 Word of the Day - 2026-08-29
 
 ### **default**
-- **Meaning**: The condition of failing to meet an obligation.
+- **Meaning**: Definition not found.
 
 ---
