@@ -1,4 +1,4 @@
-## 📅 Word of the Day - 2026-11-02
+## 📅 Word of the Day - 2026-11-03
 
 ### **default**
 - **Meaning**: Definition not found.
